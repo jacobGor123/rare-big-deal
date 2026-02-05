@@ -334,7 +334,8 @@ Free & open-source.
 | 📸 | [Unrealshot AI](https://www.unrealshot.com) | Generates realistic professional photoshoots (headshots, corporate, glamour, founder looks) from your selfies using AI. High-quality, fast results. | **15% OFF** all photo packs with code WELCOME15 | 2025-11-30 |
 | 👗 | [swapOutfit](https://www.swapoutfit.com) | Try on any outfit virtually using AI — see how clothes fit and look on you before buying. | **15% OFF** all credit packs with code **BLACKFRIDAY2025** | 2025-12-02 |
 | 📚 | [UnlimitedTales](https://www.unlimitedtales.com/?via=rare-big-deal) | Generate unique Storybook for children in 5 minutes with AI | Up to **35% OFF** on Black Friday **5-story Bundle** | 2025-11-30 |
-| 🥗 | [Food Camera](https://www.food.camera/?via=rare-big) | Get professional Food Photography for your resturant in seconds  | 20% OFF with code RAREBIG20 | 2025-11-30 |
+| 🥗 | [Food Camera](https://www.food.camera/?via=rare-big) | Get professional Food Photography for your resturant in seconds  | 20% OFF with 
+| 🎉 | [PartyPilot AI](https://partypilotai.com) | AI transforms your party venue with precision floor plans, magazine-quality renders, and ready-to-buy shopping lists | Contact for pricing | |code RAREBIG20 | 2025-11-30 |
 | ✒️ | [Ink Studio AI](https://inkstudioai.com/) | Create and visualize your next tattoo in minutes, thanks to AI. | 50% OFF with code **BLACKFRIDAY50** |
 | 📖 | [Meminto Stories](https://meminto.com/) | Receive prompts to write a hardcover book based on life questions and AI transcriptions from audio recordings. | 88% OFF with code **BF2025** | 2025-12-02 |
 
